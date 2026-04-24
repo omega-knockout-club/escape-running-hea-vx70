@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with premium Script for math for brainrots, the #1 Script. Includes instant win and anti-ban for
 
 
 
